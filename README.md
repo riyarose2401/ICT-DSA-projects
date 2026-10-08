@@ -1,1 +1,0 @@
-# ICT-DSA-projects
